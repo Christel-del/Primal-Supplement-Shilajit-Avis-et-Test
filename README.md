@@ -62,10 +62,10 @@ Après avoir testé plusieurs marques, voici comment se positionne Primal Suppl�
 
 | Marque | Pureté | Efficacité | Prix | Verdict |
 |--------|--------|------------|------|---------|
-| **Primal Suppléments** | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ | €€€ | Top qualité, premium |
-| Marque B | ⭐⭐⭐⭐ | ⭐⭐⭐ | €€€ | Bon mais moins efficace |
-| Marque C | ⭐⭐⭐ | ⭐⭐⭐ | €€ | Qualité moyenne, plus accessible |
-| Marque D | ⭐⭐ | ⭐⭐ | € | À éviter, pureté douteuse |
+| **[Primal Suppléments](https://primalsupplements.fr/?sca_ref=8439359.kLI1QMIcju)** | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ | €€€ | Top qualité, premium |
+| **[Nutrition Pro Shilajit](https://nutritionpro.fr/?ref=ynnwrwea)** | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐ | €€€ | Excellent rapport qualité/prix |
+| **[Mountaindrop Shilajit](https://mountaindrop.com?ref=8683)** | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐ | €€ | Très bonne qualité, plus accessible |
+| **[Wellness Nest Shilajit](https://wellnessnest.co/products/pure-shilajit-essence?ref=aacjtiko)** | ⭐⭐⭐⭐ | ⭐⭐⭐⭐ | €€ | Bonne alternative, efficace |
 
 ## 🧠 Bienfaits scientifiquement prouvés du Shilajit
 
@@ -96,6 +96,10 @@ Après 3 mois d'utilisation quotidienne, ma réponse est **OUI**. Si vous recher
 Ce n'est pas le moins cher, mais dans le cas du Shilajit, la qualité fait toute la différence entre un produit qui transforme votre énergie et un simple supplément inefficace.
 
 🎁 **N'oubliez pas** : Utilisez le code **LMC10** pour obtenir **10% de réduction** sur votre commande.
+
+```
+LMC10
+```
 
 ➡️ **[Commander du Shilajit Primal Suppléments](https://primalsupplements.fr/?sca_ref=8439359.kLI1QMIcju)**
 
